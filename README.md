@@ -2,7 +2,7 @@
 
 Α ΕΡΩΤΗΜΑ
 
-Στη σημερινή εποχή, η ψηφιακή τεχνολογία χρησιμοποιείται ευρέως από τα ξενοδοχεία, καθώς αποτελεί τον πλέον αποτελεσματικό τρόπο προσέλκυσης επισκεπτών. https://www.researchgate.net/publication/368803016_5-Star_Luxury_Hotels'_Instagram_Performance_as_a_Digital_Marketing_Strategy_during_the_Travelling_Restriction
+Στη σημερινή εποχή, η ψηφιακή τεχνολογία χρησιμοποιείται ευρέως από τα ξενοδοχεία, καθώς αποτελεί τον πλέον αποτελεσματικό τρόπο προσέλκυσης επισκεπτών. Τα εμπλεκόμενα μέρη αφορούν τους παραγωγούς και τους καταναλωτές των υπηρεσιών. https://www.researchgate.net/publication/368803016_5-Star_Luxury_Hotels'_Instagram_Performance_as_a_Digital_Marketing_Strategy_during_the_Travelling_Restriction
 
 
 B ΕΡΩΤΗΜΑ
